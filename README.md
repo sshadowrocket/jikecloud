@@ -1,5 +1,7 @@
 # jikecloud 极客云官网地址&优惠码
 
+不定期更新极客云官网地址以及最新优惠码信息。
+
 极客云官网地址最新地址1：[https://jike6988.xyz](https://jike6988.xyz/auth/register?code=oajO)
 
 极客云官网地址最新地址2：[https://jike6602.xyz](https://jike6602.xyz/auth/register?code=oajO)
