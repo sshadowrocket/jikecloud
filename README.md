@@ -2,7 +2,7 @@
 
 不定期更新极客云官网地址以及最新优惠码信息。
 
-极客云官网地址最新地址1：[https://jike6988.xyz](https://xuv.cc/out/jikess)
+极客云官网地址最新地址1：[https://jk931.xyz](https://xuv.cc/out/jikess)
 
 极客云官网地址最新地址2：[https://jike6602.xyz](https://xuv.cc/out/jikess)
 
@@ -10,7 +10,7 @@
 
 极客云官网地址最新地址4：[https://jike591.com](https://xuv.cc/out/jikess)
 
-极客云官网地址最新地址5：[https://jike66.xyz](https://jike66.xyz/auth/register?code=oajO)
+极客云官网地址最新地址5：[https://jk931.xyz](https://jk931.xyz/auth/register?code=oajO)
 
 
 ## 简介
