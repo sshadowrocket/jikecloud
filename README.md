@@ -10,7 +10,7 @@
 
 极客云官网地址最新地址4：[https://jike591.com](https://xuv.cc/out/jikess)
 
-极客云官网地址最新地址5：[https://jk931.xyz](https://jk931.xyz/auth/register?code=oajO)
+极客云官网地址最新地址5：[https://jikev44.xyz](https://jikev44.xyz/auth/register?code=oajO)
 
 
 ## 简介
@@ -21,7 +21,7 @@
 
 ## 极客云优惠码
 
-极客云目前最新优惠码，2024年春节75折优惠码：[2024K](https://xuv.cc/out/jikess)
+极客云目前最新优惠码，2024年8折优惠码：[B80](https://xuv.cc/out/jikess)
 
 注：如果您现在已有套餐，可以到首页点升级套餐在使用优惠码购买。
 
